@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Abdelilah AYACHE
+- 👀 I’m interested in java\javascript projects
+- 🌱 I’m currently learning the maximum of programing languages
+- 📫 How to reach me abdelilahayache920@protonmail.com
